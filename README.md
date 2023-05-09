@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **ukanidhruv008@gmail.com**
 
-- ⚡ Fun fact **One I started to Devlope interest in something I never stop Untill I foundout everything About That Thing.**
+- ⚡ Fun fact **Onece I started to Devlope interest in something I never stop Untill I foundout everything About That.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
